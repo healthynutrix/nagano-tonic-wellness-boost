@@ -1,5 +1,7 @@
 # Natural Energy and Metabolism Support: A Balanced Wellness Guide
 
+![Nagano Tonic](https://raw.githubusercontent.com/healthynutrix/nagano-tonic-wellness-boost/main/natural-energy.jpg)
+
 Many people struggle with low energy, brain fog, or slow metabolism. These issues can affect productivity, mood, and overall health. While caffeine and sugary snacks may give you a quick lift, they rarely support your body in the long run. The good news is that there are natural ways to boost your energy and metabolism without relying on short-term fixes.
 
 In this guide, we will explore the connection between energy and metabolism, lifestyle habits that support both, and how natural supplements like Nagano Tonic may help.
